@@ -16,7 +16,7 @@
 
 点击访问：<a href="https://dy4-08.pages.dev/">抖音成年版</a>
 
-点击访问：<a href="https://dy5-08.pages.dev/">抖音成年版</a>
+点击访问：<a href="https://dy5-08.pages.dev/">最新抖音成年版</a>
 
 点击访问：<a href="https://dy6-08.pages.dev/">抖音成人版</a>
 
